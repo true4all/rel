@@ -19,7 +19,7 @@ Upon experiencing the limitations of human cognition, and of communication, by c
 
 In contemplating about that which is not comparable to any, neither via similarity or contrast, we can arrive at the precipice, of the meaning of *[Allāhu as-Samad](https://quran.com/112/2)*. And only at the precipice, because the thorough awareness of *as-Samad* would cause the cognizer to pale into annihilation within *al-Ikhlas* (The Purity) via peace, and love. 
 
-This form of [praxis](https://en.wikipedia.org/wiki/Praxis_(process)) leads to a [gnosis](https://en.wikipedia.org/wiki/Gnosis) at the intersection of [cataphatic](https://en.wikipedia.org/wiki/Cataphatic_theology) and [apophatic](https://en.wikipedia.org/wiki/Apophatic_theology) theology, where neither this nor that, can be posited nor denied, about *Allāhu al-Aḥad*. 
+This form of [praxis](https://en.wikipedia.org/wiki/Praxis_(process)) leads to a [gnosis](https://en.wikipedia.org/wiki/Gnosis) at the intersection of [cataphatic](https://en.wikipedia.org/wiki/Cataphatic_theology) and [apophatic](https://en.wikipedia.org/wiki/Apophatic_theology) theology, where neither this nor that, can be posited nor denied, about *[Allāhu al-Aḥad](https://quran.com/112/2).* 
 
 Such is the case in as many possible 
   - glyphs, 
@@ -28,7 +28,7 @@ Such is the case in as many possible
   - uttered or unuttered speech, 
   - motioned or unrequited gesture, 
 
-that may belong to the realm of communicability, from self-to-self, or self-to-other. And it is as such, because *lam yalid wa lam yụlad, wa lam yakul lahụ kufuwan aḥad.*
+that may belong to the realm of communicability, from self-to-self, or self-to-other. And it is as such, because *[lam yalid wa lam yụlad, wa lam yakul lahụ kufuwan aḥad](https://quran.com/112/2).*
 
 <p align="center">
   <img width="69%" src="https://upload.wikimedia.org/wikipedia/commons/f/fb/Wu_%28negative%29.svg"></img>
